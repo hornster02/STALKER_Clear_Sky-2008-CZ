@@ -1,1 +1,3 @@
-# STALKER_Clear_Sky-2008-CZ
+2016-06
+
+https://drive.google.com/drive/folders/1VPLiV5V2Um4Ed3dkDO7hEuYor07ZZJxU
