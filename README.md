@@ -1,0 +1,1 @@
+# STALKER_Clear_Sky-2008-CZ
